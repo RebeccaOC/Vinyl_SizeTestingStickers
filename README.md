@@ -1,4 +1,4 @@
-# Cavalier Stickers 
+# Cavalier Decals
 
 Purchased really cheap heat transfer vinyl and wanted to test its limits. Created a detailed design of my dog and printed at three different sizes. 
 
